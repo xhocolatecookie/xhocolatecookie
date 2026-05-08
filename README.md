@@ -12,9 +12,10 @@ queer platonic
 
 DMs allowed ^=^ , mooting is fine don't spam me too much unless were close!
 
-I'm currently learning how to code,beginning Japanese as well 🥹
+I'm currently learning how to code, beginning Japanese as well (I suck at it) 
 
-I see my straw page requests very late(! 
+I see my straw page requests very late
+
 I'm chronically online at no school days, but have a very limited internet access
 
 
