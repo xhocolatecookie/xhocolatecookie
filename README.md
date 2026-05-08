@@ -1,16 +1,23 @@
-## Hi there 👋
+# boundaries/info! 
+-
+Chocolate/cookie, in short chock! 
+Agender masc
+pronouns : any/all
+queer platonic
 
-<!--
-**xhocolatecookie/xhocolatecookie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+DMs allowed ^=^ , mooting is fine don't spam me too much unless were close!
+
+I'm currently learning how to code,beginning Japanese as well 🥹
+
+I see my straw page requests very late(! 
+I'm chronically online at no school days, but have a very limited internet access
+
+my socials will be linked to my GitHub links, feel free to interact! 
+
+any jokings are ok, dont make it too inappropriate
+
+as I mentioned, I am queer platonic, platonic crushing/partnering is acceptable ^_^
+
+don't spam me too much, or I'll block you for 30 minutes /silly
